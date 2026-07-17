@@ -1,4 +1,4 @@
-# Hi, I'm Rev. Thalawe Rahula Thero 👋
+# Hi, I'm REV. THALAWE RAHULA THERO 👋
 
 ### Software Engineering Enthusiast
 
